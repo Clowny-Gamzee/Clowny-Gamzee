@@ -1,7 +1,8 @@
 
 
 
-![]([https://tenor.com/h17HYLadQFf.gif](https://tenor.com/es/view/gamzee-honk-gamzee-makara-gamzee-homestuck-hornpile-gif-6605562301451435895))
+![](![gamzee-honk](https://github.com/user-attachments/assets/4e4034d7-5344-4407-a260-61283ac203b5)
+)
 
 
 [https://straw.page/draw?bio=billdick](https://billdick.straw.page/)
