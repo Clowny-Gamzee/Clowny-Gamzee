@@ -6,8 +6,8 @@
 "i LiKe It WhEn We KiSs WiTh A tOnGuE
 
 mUsClE oF fUn InSiDe My MoUtH!! :o)"
-
 ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧
+
 ![eepy-gamzee](https://github.com/user-attachments/assets/40c46f04-2a9d-46d0-8410-31a2723487d8)
 
 a MoThErFuCkEr MiRaClE. tHe MoThErFuCkEr MiRaClE wIlL hApPeN. i'M tHe OnLy MoThErFuCkEr OnE wHo CaN dO iT. nO oNe ElSe CoUlD cOmPlEtE tHiS mIsSiOn,WhIcH iS sO mOtHeRfUcKiNg MiRaCuLoUs.
