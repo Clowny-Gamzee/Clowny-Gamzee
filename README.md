@@ -4,7 +4,7 @@
 ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧
 
 "i LiKe It WhEn We KiSs WiTh A tOnGuE
-mUsClE oF fUn InSiDe My MoUtH!! :o)"
+.mUsClE oF fUn InSiDe My MoUtH!! :o)"
 
 ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧
 
