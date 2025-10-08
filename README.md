@@ -12,4 +12,4 @@ mUsClE oF fUn InSiDe My MoUtH!! :o)"
 
 a MoThErFuCkEr MiRaClE. tHe MoThErFuCkEr MiRaClE wIlL hApPeN. i'M tHe OnLy MoThErFuCkEr OnE wHo CaN dO iT. nO oNe ElSe CoUlD cOmPlEtE tHiS mIsSiOn,WhIcH iS sO mOtHeRfUcKiNg MiRaCuLoUs.
 
-![dgxmr4a-3d13e392-6724-409b-9115-e0a491c0e234](https://github.com/user-attachments/assets/8b975021-5224-4ad3-8bb4-aa74e99028d4) ![d5n2nwr-334d1eb0-8c21-4f58-b03b-effbdb61ad87](https://github.com/user-attachments/assets/366e8380-d024-41be-bd4e-e1adb88c2b46) ![da22frx-18da9dae-e9ad-4e29-9af6-bfda922746cc](https://github.com/user-attachments/assets/bb6f50f4-4bee-4ba3-a49c-60673e82858f)
+![dgxmr4a-3d13e392-6724-409b-9115-e0a491c0e234](https://github.com/user-attachments/assets/8b975021-5224-4ad3-8bb4-aa74e99028d4) ![d5n2nwr-334d1eb0-8c21-4f58-b03b-effbdb61ad87](https://github.com/user-attachments/assets/366e8380-d024-41be-bd4e-e1adb88c2b46)
