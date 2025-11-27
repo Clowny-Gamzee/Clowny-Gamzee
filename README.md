@@ -9,9 +9,7 @@
 
 ![eepy-gamzee](https://github.com/user-attachments/assets/40c46f04-2a9d-46d0-8410-31a2723487d8)
 
-I don't wanna know how faygo gets all hissy
-
-I don't wanna know how karkat gets so pissy-
+i JuSt WaNt To HaVe FuN aT tHiS nEvEr-EnDiNg PaRtY!! eVeRyOnE iS wElCoMe, I'lL eVeN mAkE yAlL a CoUpLe Of SoPoR pIeS :o)
 
 ![dgxmr4a-3d13e392-6724-409b-9115-e0a491c0e234](https://github.com/user-attachments/assets/8b975021-5224-4ad3-8bb4-aa74e99028d4)
 ![d5n2nwr-334d1eb0-8c21-4f58-b03b-effbdb61ad87](https://github.com/user-attachments/assets/608bf689-198e-4521-8667-8acf4d5abe1b)
