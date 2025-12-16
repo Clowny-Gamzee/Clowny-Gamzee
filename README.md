@@ -6,9 +6,13 @@
 
 <p align="center">
 AlL Up aT OnE RoCk, BlEeDiNg aS EqUaLs
-It's eAsY To sEe iF YoU SeArCh aLl yOuR FeElInS
+
+  It's eAsY To sEe iF YoU SeArCh aLl yOuR FeElInS
+
 ThAt pEaCe hApPeNs fIrSt, AnD MuRdEr's tHe sEqUeL
+
 It's tHe bEaUtY Of tHe cArNiVaL, tHe mAgIc's iN TeNtS
+
 FuCkIn dArKnEsS OuTsIdE, bUt tHe lIgHt mAkEs yOu wInCe
 
 
