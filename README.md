@@ -4,7 +4,7 @@
 
 #  ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧ HONK HONK :o) ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧
 
-
+<p align="center">
 i JuSt WaNt To HaVe FuN aT tHiS nEvEr-EnDiNg PaRtY!! eVeRyOnE iS wElCoMe, I'lL eVeN mAkE yAlL a CoUpLe Of SoPoR pIeS :o)
 
 ![dgxmr4a-3d13e392-6724-409b-9115-e0a491c0e234](https://github.com/user-attachments/assets/8b975021-5224-4ad3-8bb4-aa74e99028d4)
