@@ -1,6 +1,4 @@
 ![gamzee-honk](https://github.com/user-attachments/assets/45dc65c2-0b15-40eb-8cb1-b0e7ae8a626a)
-![285a7a7e280f3c8293bbc644c73fdcdd](https://github.com/user-attachments/assets/b6e36476-0432-4d5f-9246-431e95c5f9d7)
-
 
 
 #  ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧ HONK HONK :o) ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧
