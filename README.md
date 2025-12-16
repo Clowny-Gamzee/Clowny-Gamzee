@@ -3,6 +3,7 @@
 
 <center>
                                     ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧
+                                rEaD iF yOu WaNt :o)
 </center>
 
 ![eepy-gamzee](https://github.com/user-attachments/assets/40c46f04-2a9d-46d0-8410-31a2723487d8)
