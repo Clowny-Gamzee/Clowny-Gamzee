@@ -2,7 +2,8 @@
 ![gamzee-honk](https://github.com/user-attachments/assets/45dc65c2-0b15-40eb-8cb1-b0e7ae8a626a)
 <center>
 
-# This is a Centered Heading
+# #                   ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧
+
 
 This paragraph of text will also be perfectly centered.
 
