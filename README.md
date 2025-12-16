@@ -1,10 +1,8 @@
 ![b053fb950b7072d08bbab5898d115582](https://github.com/user-attachments/assets/13e5cf44-2f10-462a-9abc-5b7b0111c351)
 ![gamzee-honk](https://github.com/user-attachments/assets/45dc65c2-0b15-40eb-8cb1-b0e7ae8a626a)
 
-<center>
-                                    ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧
-                                rEaD iF yOu WaNt :o)
-</center>
+#⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧
+                             
 
 ![eepy-gamzee](https://github.com/user-attachments/assets/40c46f04-2a9d-46d0-8410-31a2723487d8)
 
