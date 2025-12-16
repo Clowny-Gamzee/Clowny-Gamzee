@@ -9,7 +9,7 @@ AlL Up aT OnE RoCk, BlEeDiNg aS EqUaLs
 
   It's eAsY To sEe iF YoU SeArCh aLl yOuR FeElInS
 
-ThAt pEaCe hApPeNs fIrSt, AnD MuRdEr's tHe sEqUeL
+ThAt pEaCe hApPeNs fIrSt, AnD MuRdEr's tHe sEqUeL        ![a2cf9fee0a097d8c20ebfdd7bb6302d5a47a10a8](https://github.com/user-attachments/assets/9d30657e-1f07-4924-adf4-38308e56341c)
 
 It's tHe bEaUtY Of tHe cArNiVaL, tHe mAgIc's iN TeNtS
 
