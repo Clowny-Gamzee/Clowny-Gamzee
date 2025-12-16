@@ -14,7 +14,6 @@ ThAt pEaCe hApPeNs fIrSt, AnD MuRdEr's tHe sEqUeL
 It's tHe bEaUtY Of tHe cArNiVaL, tHe mAgIc's iN TeNtS
 
 <p align="center">
-
 FuCkIn dArKnEsS OuTsIdE, bUt tHe lIgHt mAkEs yOu wInCe
 
 
