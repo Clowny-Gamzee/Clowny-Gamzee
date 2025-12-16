@@ -5,7 +5,12 @@
 #  ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧ HONK HONK :o) ⛧°𓃵 ⋆༺⸸༻⋆ 𓃵°⛧
 
 <p align="center">
-i JuSt WaNt To HaVe FuN aT tHiS nEvEr-EnDiNg PaRtY!! eVeRyOnE iS wElCoMe, I'lL eVeN mAkE yAlL a CoUpLe Of SoPoR pIeS :o)
+AlL Up aT OnE RoCk, BlEeDiNg aS EqUaLs
+It's eAsY To sEe iF YoU SeArCh aLl yOuR FeElInS
+ThAt pEaCe hApPeNs fIrSt, AnD MuRdEr's tHe sEqUeL
+It's tHe bEaUtY Of tHe cArNiVaL, tHe mAgIc's iN TeNtS
+FuCkIn dArKnEsS OuTsIdE, bUt tHe lIgHt mAkEs yOu wInCe
+
 
 ![dgxmr4a-3d13e392-6724-409b-9115-e0a491c0e234](https://github.com/user-attachments/assets/8b975021-5224-4ad3-8bb4-aa74e99028d4)
 ![d5n2nwr-334d1eb0-8c21-4f58-b03b-effbdb61ad87](https://github.com/user-attachments/assets/608bf689-198e-4521-8667-8acf4d5abe1b)
