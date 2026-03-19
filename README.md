@@ -38,6 +38,13 @@ FuCkIn dArKnEsS OuTsIdE, bUt tHe lIgHt mAkEs yOu wInCe
 ![d418c40-82809b35-14e7-4290-993b-a5fbfdfe5ba2](https://github.com/user-attachments/assets/0a8ffb9b-737e-41db-9b38-c9daa79395d5)
 ![d3hakct-7d29d024-81df-4fce-99ce-6b3e6616eac7](https://github.com/user-attachments/assets/dea4b7a6-9050-4d0b-9c2c-76c00ed481a9)
 ![d3fqofe-e1fb4c90-6c17-4aef-87db-6984eb9c8f74](https://github.com/user-attachments/assets/ee000812-b15a-4391-9791-e7446a1c5651)
+![dgx0yio-6e1b4c4e-ceaf-4966-a0da-0a1b148763f2](https://github.com/user-attachments/assets/fac40922-8f08-46b1-b77b-d8aab933dc45)
+![terezi_stamp_by_meanwhatusay_d4ymcw1-fullview](https://github.com/user-attachments/assets/4627663d-84fb-452c-a93e-742efb757aaf)
+![gamzee_kill_by_meanwhatusay_d55ltmh-fullview](https://github.com/user-attachments/assets/238157d4-6f75-4fb2-b433-2d0f25e8bb14)
+![d8d1ohz-38161600-61b2-4bde-b4a5-73a3833a861a](https://github.com/user-attachments/assets/5522e004-de43-4719-97a3-e8a3d99c2124)
+<img width="99" height="56" alt="dfur3r2-0c2cd3b4-f864-4271-b425-f1bedac52790" src="https://github.com/user-attachments/assets/e7f3f8d8-13ca-4755-ba95-9323eb5827b4" />
+<img width="97" height="57" alt="dl2hmms-d237b5e9-5c5d-4a3c-a0a9-58beaeda4bf9" src="https://github.com/user-attachments/assets/50318228-fd41-40fe-b233-c7832830aa87" />
+<img width="97" height="57" alt="dl2leux-089ff9c8-5d9d-4c8f-9369-77885dbd9fed" src="https://github.com/user-attachments/assets/2de75967-c077-41d7-8e86-a46b570743d8" />
 
 
 
