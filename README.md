@@ -68,6 +68,9 @@ FuCkIn dArKnEsS OuTsIdE, bUt tHe lIgHt mAkEs yOu wInCe
 <img width="99" height="56" alt="tumblr_28082767bddc0bba6548b880443c5e1b_87f8a682_100" src="https://github.com/user-attachments/assets/c83fe10d-425a-4e96-8802-270e65b8acc8" />
 ![tumblr_5d196e8ebed9fde364c0f9c9636d1f20_e2272740_100](https://github.com/user-attachments/assets/0635d127-3d27-421f-bb2d-da94b19ee7f5)
 ![tumblr_ca70314524d132639820f5544a4b9cf4_fab89351_250](https://github.com/user-attachments/assets/ac35aece-d169-484c-9666-2cdb26b7d79d)
+<img width="99" height="56" alt="tumblr_5fb5e70047989f447195760d0e8c8d0d_eefee43c_100" src="https://github.com/user-attachments/assets/b8828dbd-7f94-4032-a0eb-7712ffd0d9e0" />
+<img width="99" height="56" alt="tumblr_090b71f586a05e53e9807b41b06c3ad2_d6e5cf0c_100" src="https://github.com/user-attachments/assets/b1b70817-0647-4983-9f06-c1970ad6e5dd" />
+<img width="99" height="56" alt="tumblr_0c81fd7ada77df50268fcf12d45a2ef8_a0bf913a_100" src="https://github.com/user-attachments/assets/db026d9b-cbbe-4f71-8ab5-e11591971806" />
 
 
 
