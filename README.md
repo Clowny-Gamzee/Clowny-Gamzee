@@ -60,6 +60,10 @@ FuCkIn dArKnEsS OuTsIdE, bUt tHe lIgHt mAkEs yOu wInCe
 <img width="99" height="56" alt="tumblr_2c8f91c9cd1b9861bfcb008de59f0c4e_5f378c16_100" src="https://github.com/user-attachments/assets/1ed14a83-0588-42f9-ac7e-21f4a2d59886" />
 ![tumblr_19e2a1c5652b9a65d0efe05c7cd3004a_beb19529_100](https://github.com/user-attachments/assets/01dc4e3d-026a-438f-b631-0526fee75e43)
 ![tumblr_bcbcfb819a37da8215e80dcac1b0078c_b5befd0b_100](https://github.com/user-attachments/assets/c93bc732-2202-4bad-af47-b5776a46e4de)
+![tumblr_b11af09c83a75e3f9c33c6a6ee0c607f_9dbcee00_100](https://github.com/user-attachments/assets/41a696ed-1501-403f-8b53-f0cc630184ee)
+![tumblr_90c7d1667b62ac247be7b00f0146f2f6_603454ff_100](https://github.com/user-attachments/assets/e00da532-967a-45de-a80c-d5e8a5b971c3)
+![tumblr_04fbcf6d1b426fa12650e834d2cc9610_6138994f_100](https://github.com/user-attachments/assets/b4100e06-6f77-4876-81b1-9ec4f9414b65)
+![tumblr_9733b771c28651a354cdcca5c1940841_67af8a9a_100](https://github.com/user-attachments/assets/efab4742-84a4-44ec-aa3a-2cb2635b064f)
 
 
 
