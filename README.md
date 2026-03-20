@@ -64,6 +64,8 @@ FuCkIn dArKnEsS OuTsIdE, bUt tHe lIgHt mAkEs yOu wInCe
 ![tumblr_90c7d1667b62ac247be7b00f0146f2f6_603454ff_100](https://github.com/user-attachments/assets/e00da532-967a-45de-a80c-d5e8a5b971c3)
 ![tumblr_04fbcf6d1b426fa12650e834d2cc9610_6138994f_100](https://github.com/user-attachments/assets/b4100e06-6f77-4876-81b1-9ec4f9414b65)
 ![tumblr_9733b771c28651a354cdcca5c1940841_67af8a9a_100](https://github.com/user-attachments/assets/efab4742-84a4-44ec-aa3a-2cb2635b064f)
+![tumblr_043ae1f789b82e3e8789d0195b55c369_3d133024_100](https://github.com/user-attachments/assets/cf7002cb-4a5e-43ef-a94b-61778a544017)
+![tumblr_09c1ca12435005426356e8e24abe7972_f3f09afc_100](https://github.com/user-attachments/assets/c04465f3-837f-4cdf-81bc-06eb26d440e7)
 
 
 
