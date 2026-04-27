@@ -17,8 +17,8 @@ It's tHe bEaUtY Of tHe cArNiVaL, tHe mAgIc's iN TeNtS
 FuCkIn dArKnEsS OuTsIdE, bUt tHe lIgHt mAkEs yOu wInCe
 
 
-![dgxmr4a-3d13e392-6724-409b-9115-e0a491c0e234](https://github.com/user-attachments/assets/8b975021-5224-4ad3-8bb4-aa74e99028d4) ![d5n2nwr-334d1eb0-8c21-4f58-b03b-effbdb61ad87](https://github.com/user-attachments/assets/608bf689-198e-4521-8667-8acf4d5abe1b)
-
+![dgxmr4a-3d13e392-6724-409b-9115-e0a491c0e234](https://github.com/user-attachments/assets/8b975021-5224-4ad3-8bb4-aa74e99028d4) 
+![d5n2nwr-334d1eb0-8c21-4f58-b03b-effbdb61ad87](https://github.com/user-attachments/assets/608bf689-198e-4521-8667-8acf4d5abe1b)
 ![da22frx-18da9dae-e9ad-4e29-9af6-bfda922746cc](https://github.com/user-attachments/assets/83a3e8cc-ec88-4d1e-b447-3c079f8b3441)
 ![d4l0hdh-af6acdf0-9654-4cd6-afe4-de71e711332c](https://github.com/user-attachments/assets/f9b6ce1b-010c-43d6-a62b-10a2b53f0bcd)
 ![dkpjd6s-7750bd53-f83c-4cc7-b3a9-eb9cf07345a5](https://github.com/user-attachments/assets/3f446709-5758-449f-8506-1be999268582)
