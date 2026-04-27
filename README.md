@@ -82,8 +82,5 @@ FuCkIn dArKnEsS OuTsIdE, bUt tHe lIgHt mAkEs yOu wInCe
 ![tumblr_1d1ea4fb1f38fc330a9a0ea8487b35c3_c809ccb9_100](https://github.com/user-attachments/assets/f2ea6a06-03e8-42a5-802a-29c9459fbba6)
 ![tumblr_370806a7b590eb1f645b3c98c94d41ef_10b9b6b1_100](https://github.com/user-attachments/assets/39eac3db-d708-4b33-9a07-ab26ba1e723e)
 
-
-
-
 #  INTRODUCTION
 ![dfsttdd-98563ff4-52d4-4a3c-a5ab-7dc0866a59dc](https://github.com/user-attachments/assets/acb0b3ab-44f5-4520-bc0b-3044abbfe50a)
